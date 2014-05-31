@@ -1,0 +1,1 @@
+Nonlinear Avalanches and Evolutionary Trends
